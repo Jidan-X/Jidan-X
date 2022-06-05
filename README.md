@@ -2,6 +2,8 @@
 
 ![FB_IMG_16454445334561869](https://user-images.githubusercontent.com/95429798/156431943-650b99e3-8fe6-43d1-8be6-e02d727efd27.jpg)
 
+https://user-images.githubusercontent.com/88397313/138573371-ssstik.io_1654390122496.mp4
+
 
 ### XNXCODE OFFICIAL
 ![TextCandy_1645387854093 png](https://user-images.githubusercontent.com/92802033/158568770-86c76f29-75c0-4449-88e8-6736018f5474.png)
